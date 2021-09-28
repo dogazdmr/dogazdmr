@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Doğa!
-- I am a freshman in Bilkent University.
+- 🎓 I am a freshman at Bilkent University.
 
